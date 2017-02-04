@@ -1,2 +1,0 @@
-# AVKsharma-Company
-Chartered Accountants
